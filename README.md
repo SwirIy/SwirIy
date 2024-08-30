@@ -1,1 +1,1 @@
-## ![Clef](https://i.ibb.co/999hPcr/Vanilla-1x](https://media1.tenor.com/m/4ad4Tg951_4AAAAC/pou.gif)
+ ![](https://media1.tenor.com/m/4ad4Tg951_4AAAAC/pou.gif)
