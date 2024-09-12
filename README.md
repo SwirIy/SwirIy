@@ -1,3 +1,3 @@
-![](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExa2RxYXpsYXY4eHo5Z2o0aGJuM3g5bG9hdmIzZHc1ZmswaHRubHR3cCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/2KS5F4kpFSzMgXDgVf/giphy.gif)
+MY NEW BABY AISODJJW (art by me)
 
-- ![17250122189793707.gif](https://i.postimg.cc/FR8wF7MJ/17250122189793707.gif) ![](https://fontmeme.com/permalink/240906/2f3c8d18c7411e82728b9709e2f56b49.png)
+[![Untitled8.png](https://i.postimg.cc/fknJnZrd/Untitled8.png)](https://postimg.cc/7J9xSvDP) [![Untitled15-Restored-20240912211832.png](https://i.postimg.cc/d0tRSmdY/Untitled15-Restored-20240912211832.png)](https://postimg.cc/ZW2yWNV7)
